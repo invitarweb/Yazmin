@@ -1,2 +1,2 @@
-# Yazmin
-Mis XV Yazmin Aguilar Peñaloza 
+# Adamari
+Mis XV Renata Adamari Sosa Sánchez
